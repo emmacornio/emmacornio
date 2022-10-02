@@ -7,7 +7,7 @@
 
 - Contact me at **emmacornio@pm.me**
 
-- Find my resume [Here](https://github.com/emmacornio/emmacornio/blob/main/My%20CV.pdf)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
